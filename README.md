@@ -2,7 +2,7 @@
 
 ### Geography
 
-I live in the city of Katowice, in the state of Śląk, in Poland.
+I live in the city of Katowice, in the state of Śląsk, in Poland.
 
 ### Reading
 
